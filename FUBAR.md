@@ -43,3 +43,6 @@ Ted thinks he is funny ... Parallel lines have so much in common. It’s a shame
 
 Alice wuzzzz here!
 >>>>>>> 96837c521cf45cc6b0dc6fc9323041b1b0c1d0a8
+
+
+carol (julie) is making weird changes on carol's computer
