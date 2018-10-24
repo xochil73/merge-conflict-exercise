@@ -28,3 +28,5 @@ Carol is writing jokes with Bob on her computer
 My dog used to chase people on a bike a lot. It got so bad, finally I had to take his bike away.
 
 I love Ted... he's one sexy dawg. 
+
+Today at the bank, an old lady asked me to help check her balance. So I pushed her over.
