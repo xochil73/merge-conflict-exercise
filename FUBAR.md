@@ -32,4 +32,13 @@ I love Ted... he's one sexy dawg.
 Carol will destroy the project
 I make apocolypse jokes... like there is no tomorrow.
 
-dsddsdsds
+I just wrote a book on reverse psychology. Do *not* read it!
+carol is lorin
+
+
+juliebob causing trouble on bob's computer
+Ted thinks he is funny ... Parallel lines have so much in common. It’s a shame they’ll never meet.
+
+Alice wuzzzz here!
+
+Bobpoclpse was here.
