@@ -34,5 +34,8 @@ I make apocolypse jokes... like there is no tomorrow.
 
 carol is lorin
 
+
 Ted thinks he is funny ... Parallel lines have so much in common. It’s a shame they’ll never meet.
+
+=======
 
