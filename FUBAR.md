@@ -23,3 +23,6 @@ What do you call a sleepwalking nun? A roamin Catholic
 juliealice adding junkie things on alices compe
 
 hi 0 it's me again...
+
+Carol is writing jokes with Bob on her computer
+My dog used to chase people on a bike a lot. It got so bad, finally I had to take his bike away.
