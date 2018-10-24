@@ -33,3 +33,6 @@ Carol will destroy the project
 I make apocolypse jokes... like there is no tomorrow.
 
 carol is lorin
+
+
+juliebob causing trouble on bob's computer
