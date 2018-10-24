@@ -31,3 +31,5 @@ I love Ted... he's one sexy dawg.
 
 Carol will destroy the project
 I make apocolypse jokes... like there is no tomorrow.
+
+I just wrote a book on reverse psychology. Do *not* read it!
