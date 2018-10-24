@@ -35,7 +35,6 @@ I make apocolypse jokes... like there is no tomorrow.
 carol is lorin
 
 
+juliebob causing trouble on bob's computer
 Ted thinks he is funny ... Parallel lines have so much in common. It’s a shame they’ll never meet.
-
-=======
 
