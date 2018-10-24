@@ -31,3 +31,6 @@ I love Ted... he's one sexy dawg.
 
 Carol will destroy the project
 I make apocolypse jokes... like there is no tomorrow.
+
+
+juliebob making trouble on bob's computer
