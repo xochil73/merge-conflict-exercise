@@ -30,3 +30,6 @@ My dog used to chase people on a bike a lot. It got so bad, finally I had to tak
 I love Ted... he's one sexy dawg. 
 
 Today at the bank, an old lady asked me to help check her balance. So I pushed her over.
+
+Carol will destroy the project
+I make apocolypse jokes... like there is no tomorrow.
