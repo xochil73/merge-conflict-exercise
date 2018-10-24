@@ -11,3 +11,4 @@ alice and BOB make the wolrd better
 
 ted (julie) and carol (anthony) did stuff on master on ted's computer, trying to eff things up as much as we can
 
+Bob and Carol made a mess on Bob's computer... My boss told me to have a good day.. so I went home.
