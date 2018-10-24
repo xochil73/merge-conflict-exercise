@@ -3,4 +3,6 @@ I will have to wait until cremation to get that smokin' hot body I have always w
 This is what Bob & Carol did on Bob's computer when working on the first feature. (correcting to CAROL's computer)
 What do you call a snobbish prisoner going down the stairs? A condescending con descending.
 
-ted (julie) an alice (lorin) did stuff on ted's computer
+ted (julie) and alice (lorin) did stuff on ted's computer
+
+ted (julie) and carol (anthony) did stuff on master on ted's computer, trying to eff things up as much as we can
