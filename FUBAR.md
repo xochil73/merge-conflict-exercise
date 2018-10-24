@@ -24,7 +24,11 @@ juliealice adding junkie things on alices compe
 
 hi 0 it's me again...
 
+<<<<<<< HEAD
+Bob doing bob things, lorin
+=======
 Carol is writing jokes with Bob on her computer
 My dog used to chase people on a bike a lot. It got so bad, finally I had to take his bike away.
 
 I love Ted... he's one sexy dawg. 
+>>>>>>> origin/master
